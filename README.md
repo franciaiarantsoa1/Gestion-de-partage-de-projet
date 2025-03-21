@@ -29,7 +29,7 @@ If you are interested in this project and want to follow it, please rate it a st
 
 ### Contact
 For any questions or suggestions, do not hesitate to contact me:
-- Email - [@hobyhardiot1@gmail.com](hobyhardiot1@gmail.com)
-- Facebook - [@mihobisoa_hardiot](https://www.facebook.com/hxbx.47)
-- Linkedin - [@mihobisoa hardiot](https://www.linkedin.com/in/mihobisoa-antsa-sarobidy-hardiot-b35547236)
+- Email - [@franciaiarantsoa@gmail.com](franciaiarantsoa@gmail.com)
+- Facebook - [@Francia](https://www.facebook.com/Francia.iarantsoa)
+- Linkedin - [@Iarantsoa Francia RASOANIRINA](https://www.linkedin.com/in/iarantsoa-francia-rasoanirina-aab162287)
 
